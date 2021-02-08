@@ -19,4 +19,4 @@
 ![](https://i.imgur.com/ziCTjHD.png)
 
 # [- !Gasha v1.2 dark blue fat hc](https://www.dropbox.com/s/17bcwuacocyvb01/-%20%21Gasha%20v1.2%20dark%20blue%20fat%20hc.osk?dl=0)
-![](https://i.imgur.com/TelZu9C.png)
+![](https://i.imgur.com/5UU74R7.png)
