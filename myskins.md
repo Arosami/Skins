@@ -13,7 +13,7 @@
 ![](https://skins.osuck.net/uploads/posts/2020-11/1606058832_3.jpg)
 
 # [BubbleSkin17-11-17](https://drive.google.com/file/d/1Q_1RJ5fNp3cJZfbTpoPUFIRoo35aY8EL/view?usp=sharing)
-![](blob:https://imgur.com/3a9cbf45-6134-4ccf-8eee-e86d88ed026a)
+![](https://i.imgur.com/IDIMVKf.png)
 
 # [JesusOmega {NM}『Planets』](https://drive.google.com/file/d/1wtGPes888IyxQ1tPjAtIs1o7xozQhN78/view?usp=sharing)
 ![](https://skins.osuck.net/uploads/posts/2020-07/1594283495_4.jpg)
